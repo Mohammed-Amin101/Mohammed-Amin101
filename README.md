@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mohammed-Amin
 - 👀 I’m interested in ...Robotics
 - 🌱 I’m currently learning ...Artificial and machine  learning
-- 📫 How to reach me ...in instagram @_mohd_._a.miin_
+- 📫 How to reach me ...in instagram @_ mohd _. _ a.miin _
 - 😄 Pronouns: ...He/him
 - ⚡ Fun fact: ...I was born in einstein birthday but year 2005
 
